@@ -6,7 +6,7 @@
    - call me ethan! (or check my prns page if u wanna for names lol)
    - i use any/all! i'm more masc online, yes.
    - i like a lot of stuff!! mainly very nerdy things
-   - i'm pretty chill about basically everything! i have no "set in stone" dni, i just block and unfollow freely
+   - i'm pretty chill about basically everything! i have no "set in stone" dni, i just block and unfollow freely. i do prefer interacting with 16+ and under 20 however.
    - (please don't take unfollows as a personal offense)
 
 i play a lot of ponytown! that's where you'll see me most active.
