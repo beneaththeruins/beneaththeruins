@@ -11,4 +11,4 @@
 
 i play a lot of ponytown! that's where you'll see me most active.
    - always feel free to hide behind or sit with me! (touch comf)
-   - my statuses (busy/online/away/whateva) never mean a lot. i'm ok being approached regardless of them!!! unless my char is like. literally sleeping it's safe to say i'm online in some way LOLL
+   - my statuses (busy/online/away/whateva) never mean a lot. i'm ok being approached regardless of them!!! unless my char is like. literally sleeping it's safe to say i'm online in some way LOLL tho oftentimes afk :p
