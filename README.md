@@ -5,8 +5,7 @@
 **HI!!** wsg. dx severe social anxiety, plsss be patient w/ me.
    - call me ethan! (or check my prns page if u wanna for names lol)
    - i use any/all! i'm more masc online, yes.
-   - i am over 16 but not an adult!! take that info as you will
- 
+   - i am over 16!! take that information as you will
    - i like a lot of stuff!! mainly very nerdy things
    - i'm pretty chill about EVERYTHING!!!!! i have no "set in stone" dni, i just block and unfollow freely. i do prefer interacting with 16+ and -23, however!
    - *please* don't take unfollows/unfriends as a personal offense!!!!! i do this a LOT, and i see basically everyone as a friend anyway so if it makes you more comfortable i'm perfectly fine friending again and explaining why i may have done such in the first place ^^' (i can guarentee it's probably because i was being stupid like genuinely i always explain if it's because i disagree with someone's actions/opinions)
