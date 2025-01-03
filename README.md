@@ -15,4 +15,4 @@ i play a lot of ponytown! that's where you'll see me most active.
    - ALWAYS feel free to hide behind or sit with me!!! (touch comf)
    - my statuses (busy/online/away/whateva) never mean a lot. i'm ok being approached regardless of them!!! unless my char is like. literally sleeping it's safe to say i'm online in some way LOLL tho oftentimes afk :p
    - if i "avoid" you or hide u, again, pls don't take this as an offense aghhj.. i get intimidated very easily, and it's not because i don't like you!!!!
-   - yeah, i avoid and put "dni fictionkin" in my name. what about it?
+   - yeah, i usually put "dni fictionkin" in my name. what about it?
