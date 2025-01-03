@@ -2,7 +2,7 @@
 
 *~~i like nos astra a lot~~*
 
-**HI!!** wsg. dx severe social anxiety, plsss be patient w/ me.
+**HI!!** wsg. dx severe social anxiety (and a buncha shit im not comfortable stating), plsss be patient w/ me.
    - call me ethan! (or check my prns page if u wanna for names lol)
    - i use any/all! i'm more masc online, yes.
    - i am over 16!! take that information as you will
